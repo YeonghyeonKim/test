@@ -1,0 +1,1 @@
+statsus exer
